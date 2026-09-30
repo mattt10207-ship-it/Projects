@@ -1,0 +1,1 @@
+All Rights Reserved. No part of this project may be reproduced, distributed, or used in any form without explicit written permission from the author.
